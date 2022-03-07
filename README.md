@@ -3,6 +3,7 @@
 ✒️ [博客，七年之约](https://乐正绫.cn "希望七年后还能活着😓")     
 🛣️ [318川藏线骑行](https://乐正绫.cn/318 "回忆录")   
 ❤️ [Vocaloid](https://乐正绫.cn/2022/02/01/新年快乐，各位/#Part-03 "Vocaloid是什么？") and Stay alive.    
+✉ [你可以在这里给我留言]（https://乐正绫.cn/messageboard "每一条留言我都会认真查看"）
 <!-- ⭐ At , Total Stars Reached 1k -->
 
 > 不敢与世间拥吻，更不甘离开喧哗   
