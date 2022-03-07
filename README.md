@@ -7,6 +7,6 @@
 <!-- ⭐ At , Total Stars Reached 1k -->
 
 > 不敢与世间拥吻，更不甘离开喧哗   
-> 不敢迎风而奔，更不甘停下步伐
+> 不敢迎风而奔，更不甘停下步伐 ——《野心家》
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=MontagneWang&show_icons=true&theme=onedark)
